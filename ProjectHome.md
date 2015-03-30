@@ -1,0 +1,1 @@
+перевод книги Хенрика Книберга "Scrum&XP from the trenches"
